@@ -5,7 +5,7 @@
 <div align="center">
 
 **zai** *or* **shu**
-she ⌣ any
+⠀໒꒱⠀⠀she ⌣ any
 </div>
 
 <div align="center">
