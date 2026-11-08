@@ -6,7 +6,6 @@
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=wholesome-rockstar)
 
-⠀</div>
 
 <div align="center">
 
