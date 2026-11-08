@@ -4,9 +4,9 @@
 
 <div align="center">
 
-**zai** *or* **shu**
-⠀໒꒱⠀⠀she ⌣ any
-</div>
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=wholesome-rockstar/?label=zailings+.·)
+
+⠀</div>
 
 <div align="center">
 
