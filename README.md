@@ -4,7 +4,7 @@
 
 <div align="center">
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=wholesome-rockstar)
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=wholesome-rockstar&label=zailings%₊˚⊹)
 
 
 <div align="center">
